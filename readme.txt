@@ -1,0 +1,1 @@
+static privacy policy(s) for android applications
